@@ -1,0 +1,1 @@
+# HR_AskedMeIfAnyFavorsWereExpectedOfMeForGoingToHawaii_TheyWereNotOnYourSide_IdiotCreep
